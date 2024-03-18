@@ -8,6 +8,7 @@ Name                                    Email
 NERELLA VENKATA SIVA SAI SANDEEP       venkatasivasaisandeep@gmail.com
 MIRIYALA MANIKANTA                     9921008019@klu.ac.in
 Pavan kumar Tammineni                  pavankumar92412@gmail.com
+DAGGULA KASIREDDY 9921008137@klu.ac.in
 
 screen shots:-
 https://drive.google.com/file/d/1JAjAv68pdHneDv_Ln4U06vmSgS2DHXAy/view?usp=sharing
